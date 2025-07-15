@@ -21,7 +21,7 @@
   [mogheethabdallah@gmail.com](mailto:mogheethabdallah@gmail.com)
 
 - 📄 **Know More About Me**:  
-  - Check out my [Resume](https://drive.google.com/file/d/1oD3q_MclvjRMnpobkN3stPUgJKPVJEPF/view?usp=sharing).
+  - Check out my [Resume](https://drive.google.com/file/d/1oD3q_MclvjRMnpobkN3stPUgJKPVJEPF/view?usp=sharing)
 
 ---
 
